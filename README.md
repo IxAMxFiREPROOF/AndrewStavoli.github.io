@@ -8,7 +8,7 @@
 
 ## Work Experience
 **Service Advisor @ Vann Chrysler Dodge Jeep Ram (_January 2023 - Present_)**
-**Customer Service Manager @ Cervini's Auto Designs 
+**Customer Service Manager @ Cervini's Auto Designs**
 
 ## Projects
 
